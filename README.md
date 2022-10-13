@@ -13,4 +13,4 @@ Hernán David Quijano González
 
 LIDa Tatiana Vega ríos
 
-Anderson Johao Durán Sepúlveda ✅
+Anderson Johao Durán Sepúlveda  ✅
