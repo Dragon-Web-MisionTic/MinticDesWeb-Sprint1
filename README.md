@@ -12,6 +12,6 @@ Juan Sebastian Latotrre Cardenas✅
 
 Hernán David Quijano González✅
 
-LIDa Tatiana Vega ríos
+LIDa Tatiana Vega ríos✅
 
 Anderson Johao Durán Sepúlveda  ✅
